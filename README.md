@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Halanau/github.io/rsschool-cv/
